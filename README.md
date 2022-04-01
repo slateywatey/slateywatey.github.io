@@ -1,1 +1,0 @@
-# slateywatey.github.io
